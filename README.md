@@ -1,0 +1,3 @@
+89Trillion is a mobile game development company founded in 2015, a global partner of Facebook and Google Play. Since its establishment, it has developed more than 10 games which owns over 100 millions users. The number of global users totally exceeds 600 millions, ranking Top 5 among the world. Word Link, Hello Stars, Art of War: Legions have consistently been among the Top 10 Grossing Apps for iOS and Google Play since their release.
+
+We have an efficient team, some of our members come from MIT, Cambridge, Tsinghua and Peking University. We’ve been exploring and building an interesting game ecology for a long time, looking forward to working with intelligent, passionate and motivated friends and exploring the world of game.
